@@ -6,6 +6,4 @@
 </p>
 <p align="center">
 <img src="https://cdn.discordapp.com/attachments/1089029709377052674/1217260550099304468/i-cant-go-home-i-cant-say-ple-3-12-2024.png?ex=6603613a&is=65f0ec3a&hm=b85908e973c4d7f3dbe1f81f3425f5a857db4b40d4f1c28e0d051b0ec3dd8f15&" width="512" height="143">
-<blockquote>KILLER</blockquote>
-<blockquote align="center">HE/IT + 15</blockquote>
-<blockquote align="right">READ RENTRY</blockquote>
+
