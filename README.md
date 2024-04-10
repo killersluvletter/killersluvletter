@@ -1,9 +1,33 @@
-<p align="center">
-<img src="https://media.discordapp.net/attachments/1089029709377052674/1217260550396973186/bury-me-bury-me-please-3-12-2024.png?ex=6603613a&is=65f0ec3a&hm=786a5dc28b049dc71bf5cda9272b5e1caf608601a696b7c0f4ee78b2cbc50bdc&=&format=webp&quality=lossless" width="512" height="143">
-</p>
-<p align="center">
-<img src="https://cdn.discordapp.com/attachments/1089029709377052674/1210837727780675604/Untitled294_20240223223641.png?ex=65fe7882&is=65ec0382&hm=fb3827536f57b534161f1cba9db08a5768b25be2a8a4c6e837c1b7e6666976ba&" height="350" width="350">
-</p>
-<p align="center">
-<img src="https://cdn.discordapp.com/attachments/1089029709377052674/1217260550099304468/i-cant-go-home-i-cant-say-ple-3-12-2024.png?ex=6603613a&is=65f0ec3a&hm=b85908e973c4d7f3dbe1f81f3425f5a857db4b40d4f1c28e0d051b0ec3dd8f15&" width="512" height="143">
+ # 🔪‎ ‎ ⸺‎ ‎ ❛ 𝙽𝚘𝚝𝚑𝚒𝚗𝚐 𝚛𝚎𝚊𝚕𝚕𝚢 𝚑𝚞𝚛𝚝𝚜 𝚠𝚑𝚎𝚗 𝚎𝚟𝚎𝚛𝚢𝚝𝚑𝚒𝚗𝚐𝚜 𝚊 𝚓𝚘𝚔𝚎 . ❜
+![](https://i.imgur.com/NxnBasj.png)
 
+　　　　🌑 ‎ ‎ ‎ ⌣⌣ ‎ ‎ ‎ **Killer** ‎ ‎ ‎or ‎ ‎ **Ezekiel** ‎ ‎ ‎ ₊ ‎ ‎ ‎ TKN ‎ ‎ ‎ ∿ ‎ ‎ ‎ He‎ ‎+ It‎ ‎ ‎ ‎ - ‎ ‎ ‎ **six**teen!!
+
+usually ontab but not paying attntn 　‎  　‎ If you wanna int pls whisp! i'll be more likely to see it
+
+`dni`　　　fit basic dni + pro+comship +  drama fiends + shipcourse + Fandomcourse
+
+
+***
+<details>
+
+<summary>⸺⸺‎ ‎ ‎ ponytown‎ ‎ ‎ boundaries‎ ‎ ‎ &‎ ‎ ‎ info/byi</summary>
+ 
+ 
+#### Home base is UTDR Area - Usually with friends! (almost never alone)
+
+DNT if i don't know you, I don't have a TD or TT I just.. don't want strangers cuddling booping or hiding behind me!
+
+Do not copy or take heavy inspo from my skins **WITHOUT** asking! 
+
+I have audhd , severe anxiety , deppresion , and am a DID system of 60+ , Please respect that and do not ask for a specific person to front unless you are close. You can always ask who's fronting tho ^-^
+
+Underlust + Leviathantale DNI. I do not like,, those weird.. ass fetish.. things... whatever they are... STAY AWAY!!
+
+I tend to cuss a lot and can get hyper sometimes and make some jokes that people might not find as funny as I do + If i mkae you uncomfortable let me know! I most likely won't have realized
+
+I only use tonetags if I deem the situtation needs it, I won't use them otherwise.
+
+</details>
+
+*** 
