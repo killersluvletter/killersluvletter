@@ -14,7 +14,7 @@ usually ontab but not paying attntn 　‎  　‎ If you wanna int pls whisp! i
 <summary>⸺⸺‎ ‎ ‎ ponytown‎ ‎ ‎ boundaries‎ ‎ ‎ &‎ ‎ ‎ info/byi</summary>
  
  
-#### Home base is UTDR Area - Usually with friends! (almost never alone)
+#### Home base is UTDR + ROBLOX Area - Usually with friends! (almost never alone)
 
 DNT if i don't know you, I don't have a TD or TT I just.. don't want strangers cuddling booping or hiding behind me!
 
